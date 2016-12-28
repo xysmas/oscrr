@@ -18,7 +18,7 @@ A newfound love of my kitchen scale led me to experiment with remaking this clas
 
 
 ### Instructions
-- Preheat the oven to 375 degrees F.
+- Preheat the oven to 375 degrees F (190 C)
 1. Whisk together the flour, baking soda, and salt in a bowl and set aside.
 2. Lightly melt or soften butter
 4. Beat butter, sugars, vanilla together. 
